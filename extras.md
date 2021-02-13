@@ -47,6 +47,6 @@ Jugador profesional de Hockey sobre Hielo
 <dt>Orientación Romántica</dt> <dd>  
 Heteroromantico. Siente atracción romántica por aquellas del género opuesto al suyo propio.</dd>
 <dt>Subcultura</dt> <dd> Deportista, Fiestero</dd>
-<dt>Voz</dt> <dd> Tono seguro, sarcastico y jugueton cuando esta de buen humor, usa un tono serio cuando esta enojado o algo le incomoda / Tono de voz clara / Voz a cual voz se parece.</dd>
+<dt>Voz</dt> <dd> Usa jerga de la calle, deportiva y vulgar / Tono seguro, sarcastico y jugueton cuando esta de buen humor, usa un tono serio cuando esta enojado o algo le incomoda  / Voz a cual voz se parece.</dd>
 <dt>Debilidades</dt> <dd> Le tiene miedo al fuego y a ser quemado. Teme quedar poseido y a lastimar a quienes aprecia, ya sea poniendolos en peligro o a él mismo.  </dd>
 <dt>Habilidades</dt><dd> Persistencia, esfuerzo y habilidades deportivas profesionales. </dd>

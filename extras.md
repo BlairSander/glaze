@@ -42,11 +42,11 @@ Jugador profesional de Hockey sobre Hielo
 - Medalla de oro al equipo ganador del torneo internacional. 
 
 ## Personalidad
-<dt>Personalidad general</dt> <dd>con muy poco sentido del humor, obstinada, inestable, temeraria, impaciente, vengadora, hiperactiva, pesimista.</dd>
+<dt>Personalidad general</dt> <dd> Confiado, energico, orgulloso y creido. Tiende a ser muy sociable incluso con quienes no le agradan tanto, es muy activo y le gusta estar en ocnstante movimiento, haciendo diferentes actividades y compartiendo tiempo con quienes le agradan. Muy sociable, desorganizado y sincero con lo que piensa.</dd>
 <dt>Orientación Sexual</dt> <dd>Bisexual</dd>
 <dt>Orientación Romántica</dt> <dd>  
-Litho-romántico: Puede sentir atracción romántica por alguien, pero ésta desaparece en el momento en el que la otra persona muestra reciprocidad, y puede llegar a convertirse en un sentimiento de angustia ante las muestras de afecto de la otra persona.</dd>
-<dt>Subcultura</dt> <dd>Nerd, Decora y Youtuber.</dd>
-<dt>Voz</dt> <dd>Pronunciación kawaii cuando finge ser kiut y grave cuando está molesta / Tono de voz clara / Voz a cual voz se parece.</dd>
-<dt>Debilidades</dt> <dd>Inestabilidad emocional. No tiene claros sus sentimientos. Lastima a quienes aprecia. De forma inconsciente envidia a Ume y su claridad sobre quién ama y su relación la cual considera perfecta. Tiene miedo de nunca ser feliz con la persona que ama.</dd>
-<dt>Habilidades</dt><dd> Alto intelecto y habilidades físicas sobrehumanas. </dd>
+Heteroromantico. Siente atracción romántica por aquellas del género opuesto al suyo propio.</dd>
+<dt>Subcultura</dt> <dd> Deportista, Fiestero</dd>
+<dt>Voz</dt> <dd> Tono seguro, sarcastico y jugueton cuando esta de buen humor, usa un tono serio cuando esta enojado o algo le incomoda / Tono de voz clara / Voz a cual voz se parece.</dd>
+<dt>Debilidades</dt> <dd> Le tiene miedo al fuego y a ser quemado. Teme quedar poseido y a lastimar a quienes aprecia, ya sea poniendolos en peligro o a él mismo.  </dd>
+<dt>Habilidades</dt><dd> Persistencia, esfuerzo y habilidades deportivas profesionales. </dd>

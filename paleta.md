@@ -15,11 +15,11 @@
 </tr>
 <tr>
 <td style="text-align:right" width="30%"> ojos </td>
-<td width="10%">#fcdab6</td>
-<td width="10%" bgcolor="#fcff00"></td>
-<td width="10%" bgcolor="#f1941f"></td>
-<td width="10%">#fcff00</td>
-<td width="30%" >pupilas </td>
+<td width="10%">#000000 </td>
+<td width="10%" bgcolor="#000000 "></td>
+<td width="10%" bgcolor="#36f8f8"></td>
+<td width="10%">#36f8f8</td>
+<td width="30%" >Brillo ojos </td>
 </tr>
 <tr>
 <td style="text-align:right" width="30%"> ojos </td>

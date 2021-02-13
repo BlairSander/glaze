@@ -152,6 +152,7 @@ Sabe que es la madre de Costella, y que Costella está enojada con ella. No enti
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
 #### ⚑ ERUO GAZINI
+
 | amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
 Sabe que es Durian y que era el demonio de Liv. No lo entiende, pero ve que aprecia mucho a Liv, incluso después de haber sido exorcizado. A pesar de lo que dicen, no le recuerda para nada a Durian y se cree mejor cuando esta cerca de el, ya que Eruo le parece infantil y tonto.

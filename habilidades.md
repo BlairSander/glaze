@@ -35,6 +35,4 @@ layout: default
 <dd>Variación de creación de hielo: Crea estacas de hielo con las que puede atacar a los demás, usualmente empalandolos. No pueden ser derretidas por fuego normal (3000 °C) , la temperatura tiene que ser superior. Son difíciles de romper y queman las manos de quienes intentan tocarlas. Buen control de esta habilidad.</dd>
 <dt>Cambio ambiental</dt>
 <dd>Variación de manipulación hielo: No tiene control sobre este poder y lo usa solo inconscientemente cuando se encuentra mal anímicamente. Puede bajar la temperatura del ambiente al hacer que nieve, sobretodo cuando llueve. </dd>
-</dl>
 
-* * *

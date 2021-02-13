@@ -4,15 +4,13 @@ layout: default
 
 ## Situación actual
 
-<dt>País actual</dt>  <dd>Midsommar</dd>
-<dt>Alojamiento</dt>  <dd>➊ En un departamento monoambiente. Tiene una cama con frazadas rosas y dibujos de frutillas. Un guardarropas con un fierro donde cuelga todos sus conjuntos de ropa. Un baño pequeño. Una mesa que sirve de comedor y un sillón frente a una pantalla gigante (reemplazo de la biblioteca). En una esquina de la habitación, una alfombra con velo y almohadas, y en otra esquina un tocador con un espejo para maquillarse. </dd>
-<dt>Estado civil</dt>  <dd>Soltera</dd>
-<dt>Relación</dt>  <dd>Monógama</dd>
-<dt>Ocupación</dt>  <dd>Ingeniera en nano y biotecnología.</dd>
-<dt>Ingreso mensual</dt>  <dd>40mil (clase alta)</dd>
+<dt>País actual</dt>  <dd>Blair</dd>
+<dt>Alojamiento</dt>  <dd>➊ Vive en un apartamento en el centro de Blair. Las paredes del apartamento tienen una mezcla de hielo y vidrio, ya que usó sus poderes para delimitar su sector.  </dd>
+<dt>Estado civil</dt>  <dd>Soltero</dd>
+<dt>Ocupación</dt>  <dd>Jugador de hockey profesional</dd>
+<dt>Ingreso mensual</dt>  <dd>2.9M anuales</dd>
 <dt>Medios de transporte</dt> 
-<dd>Sobrenatural: Transportación 
-Aéreo: Tabla voladora </dd>
+<dd>Sobrenatural: Transportación </dd>
 
 
 * * *
@@ -20,9 +18,10 @@ Aéreo: Tabla voladora </dd>
 ## Apariencia
 
 <dt>Edad en aspecto</dt> 
-<dd>20</dd>
-<dt>Ojos</dt>  <dd>Color amarillo, grandes y redondos. </dd>
-<dt>Altura</dt>  <dd>1.52 m.</dd>
-<dt>Cabello</dt>  <dd>Su color actual y natural es rosado. Es corto, ondulado, cuidado y suave. </dd>
-<dt>Otras características</dt> <dd>Siempre usa mucho maquillaje con rímel oscuro y suele usar adornos decorativos en su rostro y pelo de formas adorables como estrellas, corazones.
-</dd>
+<dd>17</dd>
+<dt>Rasgos</dt>  <dd>Ojos negros y grandes, se los remarca con delineador al ser albino,  dientes afilados. </dd>
+<dt>Contextura</dt>  <dd>Alto, delgado y ligero. Tiene buen estado físico y musculatura aunque no mucha.</dd>
+<dt>Altura</dt>  <dd>1.70 m.</dd>
+<dt>Cabello</dt>  <dd>Pelo corto. Teñido de negro azulado, el color original es blanco </dd>
+<dt>Otras características</dt> <dd>Tiene un diamante tatuado en la mejilla izquierda. (Marca de la secta, significa “Indestructible”)
+Aros en ambas orejas, de acero quirúrgico.</dd>

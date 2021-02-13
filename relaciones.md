@@ -5,7 +5,7 @@ layout: default
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 #### ⏏ RIVA ARAMIS
 
-| amor <br> ➊➋➌➍➎➏➐**➑➒➓ | odio<br>**➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎➏➐**➑➒➓ | odio<br>**➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
 Antes de investigar sobre Logan, Devi les había advertido a ella y sus hermanas, sobre el lado oscuro de Logan. Una vez en Blair Costella pudo confirmar lo que le habían comentado, por lo que en lo posible evitaría encontrarse con Logan. En parte le tiene miedo ya que también sabe sobre su poder y toda la experiencia que tiene como soldado. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁

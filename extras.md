@@ -28,21 +28,18 @@ Esta patología no es única y exclusiva de quienes han sostenido o tienen una r
 <dt>Ejercicios</dt> <dd>Atlética por su condición de serkei.  </dd>
 
 ## Formación Académica
-- Primario, secundario y Universitario completo / Incompleto
-- Títulos
-  - Secundario con orientación en IA.
-  - Ingeniería en informática.
-  - Matemáticas.
-  - Física 
-  - Ingeniería de telecomunicaciones.
-  - Ingeniería industrial.
-- Especialización en posgrado 
-  - Máster de investigación en IA. 
-  - Doctorado en IA Avanzada.
+- Primario, secundario completos.
 
-## Experiencia laboral
-- Jefa en gerencia de diseño y desarrollo. <br>Empresa ARIMO S.A. Blair Sander. <br>Se ocupaba de la creación de planos y diseños sobre patines voladores, y control sobre el proceso de desarrollo. 
-- Creadora de contenido de video en youtube.
+## Carrera deportiva
+Jugador profesional de Hockey sobre Hielo
+
+- Equipo Nacional: Seleccion de Blair Sander. 
+- Equipo local: 
+
+## Reconocimientos
+- Trofeo Alen: al mejor goleador de la temporada.
+- Trofeo de la Academia: mejor jugador del año
+- Medalla de oro al equipo ganador del torneo internacional. 
 
 ## Personalidad
 <dt>Personalidad general</dt> <dd>con muy poco sentido del humor, obstinada, inestable, temeraria, impaciente, vengadora, hiperactiva, pesimista.</dd>

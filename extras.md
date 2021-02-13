@@ -14,17 +14,10 @@ layout: default
 
 
 ## Salud General
-<dt>Trastorno Obsesivo Compulsivo de amores</dt> <dd>Sin tratamiento.
-El amor obsesivo-compulsivo trata de un tipo concreto de trastorno obsesivo compulsivo en el que la persona siente una forma extrema de amor romántico donde los sentimientos característicos de un enamoramiento se vuelven más intensos. La persona siente una gran necesidad de poseer y dominar.
-Esta patología no es única y exclusiva de quienes han sostenido o tienen una relación, también lo padecen personas que se obsesionan con otros/as que ni siquiera conocen, les basta con solo haber tenido un fugaz contacto para obsesionarse con ese/a individuo.</dd>
-- Síntomas y/o comportamientos:
-  - Conductas similares a quien padece TOC, como pensar obsesiva e intensamente en el sujeto.
-  - La necesidad apremiante de reciprocidad.
-  - Cambios de humor dependientes a la reciprocidad.
-  - Intensos sentimientos de ansiedad y depresión.
-  - Idealización del individuo.
-  - Afán por hacer cosas temerosas para ganar o mantener los favores del sujeto amado. 
-<dt>Higiene</dt> <dd>Se baña en ducha dia por medio, excepto cuando se encuentra demasiado deprimida donde ni siquiera se baña. </dd>
+<dt>A veces tiene estres post traumatico por su pasado en la secta</dt> <dd> Tratamiento psicologico con terapia conductual
+Sus tutores informan sobre su salud al gobierno, ademas de que un inspector lo visita cada mes para saber de su progeso y su reinsercion a la sociedad. </dd>
+ 
+<dt>Higiene</dt> <dd> Se baña todos los dias al mantenerse activo todo el tiempo, saliendo a correr a la mañana, entrenando a la tarde y saliendo de fiesta a la noche. </dd>
 <dt>Ejercicios</dt> <dd>Atlética por su condición de serkei.  </dd>
 
 ## Formación Académica

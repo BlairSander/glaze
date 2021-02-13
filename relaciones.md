@@ -5,252 +5,212 @@ layout: default
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 #### ⏏ RIVA ARAMIS
 
-| amor <br> **➊➋➌➍➎➏➐**➑➒➓ | odio<br>**➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎➏➐**➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Antes de investigar sobre Logan, Devi les había advertido a ella y sus hermanas, sobre el lado oscuro de Logan. Una vez en Blair Costella pudo confirmar lo que le habían comentado, por lo que en lo posible evitaría encontrarse con Logan. En parte le tiene miedo ya que también sabe sobre su poder y toda la experiencia que tiene como soldado. 
+Es la hija que tuvo junto a Jafet. Llegó a un acuerdo con Awen de que le borraran sus recuerdos a Jafet y Riva quedara a cargo de Awen. Glaze no se sentía capaz de criar a nadie ya que él tenía problemas psicológicos también. Está feliz de que Riva haya sido bien cuidada por Awen o eso cree él, le sorprende que quiera ayudarlo tanto a él como a Jafet y no les tenga rencor. Tiene aprecio hacia su hija aunque no la conoce mucho, pero cree que lo mejor es mantenerse alejado de ella. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ LEZNE GRAM
+#### ⏏ JAFET DE WITT BUKATER
 
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎**➏➐➑➒➓  |
+| amor <br> **➊➋➌➍**➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏➐➑**➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑➒**➓  |
 
-No la conoce mucho en persona, pero sí investigó sobre ella. Sabe sobre el pasado de Lezne e incluso logró recopilar datos sobre los orígenes de Lezne, lo cual le sirvieron de investigación sobre sus propios genes. Cree que el instinto asesino y la mentalidad obsesiva provinieron de sus genes en relación a Lezne y siente que tienen mucho en común. Por otra parte, le cae mal la relación de Lezne con Devi y no cree que realmente sean compatibles ni que debieran estar juntas, sobre todo porque le cae mal Devi. 
+Le tiene aprecio por todos los recuerdos que tiene con ella, donde lo cuidaba y atendia. Tiene un fuerte deseo de protegerla, pero cree que ese sentimiento fue infundado por Jafet. Le tiene rencor por tratarlo como a un objeto de su pertenencia y no cree que Jafet nunca lo haya querido realmente. Aún así le gusta y trata de mantener su distancia con ella, ya que tiene miedo de que Jafet vuelva a ejercer control sobre él. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ ESTEBAN GONZALES
+#### ⏏ COSTELLA REIZER
 
-| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎➏➐➑➒**➓ | odio<br>**➊➋**➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑➒➓**  |
 
-No confia mucho en Esteban ya que siente que ponía a Maite por encima de ella cuando quería relacionarse con Durian y que Esteban fue una de las tantas razones de porqué no se pudo acercar a Durian. Sabe que la mantenía al margen de todos y se sentía demasiado aislada cuando Esteban estaba a cargo de ella. No cree que Esteban en realidad sea tan buena persona a pesar de haber sido un Ente y que siempre tuvo intereses propios como el de aparentar una imagen de buena persona frente a los demás a costa de las cagadas que se mandaban los demás. 
+Le tiene aprecio ya que la conoció después de decepcionarse de Jafet, y ella le hizo entender qué tipo de personas le interesaban realmente, además de que lo ayudó bastante y de forma desinteresada. Admira lo inteligente que es pero al mismo tiempo le gusta que sea ingenua y adorable, a pesar de que con su inteligencia podría lograr un montón de cosas solo siendo falsa y manipulando, ella decide ser sincera y entender sus sentimientos más que nada. Le hubiera gustado enamorarla, pero es consciente de que es muy tonto y no es para nada su tipo.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ GLEN BAEZ
+#### ⏏ NAGA GARTER
 
-| amor <br> **➊➋➌➍➎**➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑**➒➓  |
 
-Le caía bien y sentía admiración por él. De hecho era una de las pocas personas en quien sí confiaba. Consideraba que Glen tenía muchos valores que nadie tenía y le hubiera gustado poder aprender más de él. De hecho sacó algo de su personalidad y aprendió lo poco que pudo enseñarle. No sabe cómo murió pero cree que fue culpa de los demonios cuando habían atacado la ciudad. Muchas veces se pregunta qué es lo que Glen hubiera hecho cuando tiene que tomar decisiones, pero tampoco cree poder tener tantas fuerzas y resistencia mental como la tenía Glen.  
+La vio solo una vez, pero le parece linda y le gusta que lo mire con disgusto, no sabe mucho de ella y tampoco le interesa conocerla, ya que cree que se va a decepcionar ,ya que después de todo es hija de Audy, a quien considera una tonta.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ CORAL ASLIR
+#### ⏏ LATIFA LARREA
 
-| amor <br> **➊➋➌➍➎**➏➐➑➒➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎**➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑➒➓**  |
 
-La conoció de adulta y tampoco tuvo un lazo con ella, por lo que no siente mucho aprecio, pero si le da pena que Devi le haya ocultado la verdad. Por otro lado también está un poco resentida de que no la haya buscado y prefiere mantenerse distante de Coral. 
+Tuvo relaciones con ella y la considera muy atractiva. Le tiene aprecio y se divierte saliendo de joda con ella, también encuentra gracioso  como golpea a Smurf y lo enérgica que es. A pesar de eso no sabe mucho de su vida ya que Latifa parece incomoda de hablar de esos temas, aun asi le parece que es alguien sincera y le cae bien. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ DEVI REIZER
+#### ⏏ LIVIA ARZER
 
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎**➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎➏➐**➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌**➍➎➏➐➑➒➓  |
 
-Quien se encargó de rescatarla de las manos de Logan y se ocupó de cuidarla de forma fail. No le tiene aprecio porque ni siquiera siente un vínculo en el poco tiempo de crianza, pero sí alcanzó a odiarla por su personalidad prepotente y agresiva, como la vez que la atacó en la nave de Logan. 
+Le tiene mucho aprecio ya que lo ayudó más de una vez y de forma desinteresada, a la vez, siente contradicciones ya que ella es una bruja al igual que Jafet, y no quiere relacionarse tanto con ella.Cuando Liv se puso en peligro por él y le confesó que era importante para ella, sintió que no era la persona inexpresiva y fría que había conocido, sino que tenía muchos sentimientos que ocultaba. No sabe porque está enamorada de él realmente, y no quiere tener una relacion con ella ya que no quiere lastimarla, ya que la última vez que estuvo con ella la hizo llorar, al no corresponder sus sentimientos. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ VRITRA REIZER
+#### ⏏ EMI SALLOW
 
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎➏➐**➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎**➏➐➑➒➓  |
 
-Apenas se relacionó con ella cuando Devi las crió durante un año. Con lo poco que la conoce, cree que hizo bien en no relacionarse con ninguna de sus hermanas ni con Devi. A veces siente curiosidad sobre cómo hubiera sido si conocía a Vritra, pero prefiere no relacionarse. 
+La conoce desde la secta y es alguien con quien siente que congenia muy bien, o por lo menos antes de que se volviera exorcista. Juntos boludean en la escuela y le cae bien, la considera una buena amiga, además de que también se preocupa por Costella. Le parece re loco que se haya vuelto exorcista , aunque cree que es más que nada porque era la favorita de Euler, notando que en la prisión Emi tenía más libertad y privilegios, a pesar de ser igual a él en pajera.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ LEYVA REIZER
+#### ⏏ SMURF CREGO
 
-| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎**➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎➏**➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍**➎➏➐➑➒➓  |
 
-Le cae mal por estar con Bianca que tiene pareja aunque es más envidia porque Costella no pudo conseguir lo mismo de Durian. Tampoco le gusta la personalidad prepotente de Leyva y chocan mucho. Lo único que aprecia de Leyva es el tiempo en el que se esforzaba por la ciudad y cree que esa fue una buena acción, pero lo arruinó cuando se volvió parte del harem de Bianca. 
+Le cae bien y le gusta visitarlo o ir a eventos juntos, se siente identificado con el por el hecho de que ambos vienen de una secta y a pesar de eso intentan tener vidas tranquilas. A pesar de eso, Glaze cree que incomoda a Smurf por sus poderes que son peligrosos, asi que evita usarlos demasiado cuando pasan el rato. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ TANIS REIZER
+#### ⏏ REIF ARAMIS
 
-| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎**➏➐➑➒➓ | atraccion <br> **➊➋➌➍**➎➏➐➑➒➓  |
+| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍**➎➏➐➑➒➓  |
 
-Se relacionó con ella desde que llegaron a Blair y le caía bien. Incluso las dos fundaron una empresa sobre diseño y producción de motos y patines voladores. Las dos trabajaban juntas y no tenían ningún tipo de problema hasta que Costella decidió casarse con Bernard. Tanis consideró que la decisión de Costella era muy estúpida y no quizo hablarle más, por eso ahora Costella está resentida de que la rechazara. Además le desagrada que haya sido pareja de su madre biológica aunque Tanis no lo supiera.
+Lo conoció en la prisión de Blair, pasaron tiempo juntos y Reif trataba de ayudar a Glaze con sus dramas de amor no correspondido. Glaze se siente atraído por él cuando se viste de chica cute,y con muchos adornos, con ropa que le había dado Desmond. No lo volvió a ver después de que Reif lo rechazara ya que estaba confundido respecto a quien le gustaba.
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ NOMBRE DESCONOCIDO
-
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
-
-La conoció cuando fue a la máquina del tiempo con Glaze. No sabe realmente si es su media hermana, pero considera que es muy probable. No supo más de ella después del incidente y tampoco le interesa buscarla ya que imagina que de todas formas no serían amigas y que sería igual de incómodo que con el resto de sus hermanas.
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ⏏ IZAN REIZER
+#### ⏏ RAY GREYHOUND
 
 | amor <br> **➊➋➌➍**➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Cuando se dió cuenta de que tenía los dos hijos de Herz, decidió dárselos a Awen para que los llevara dentro de la máquina del tiempo y ayudara a criarlos. También llevó un androide similar a ella para que sus hijos pudieran reconocerla como su madre, aunque sin haberles mentido, ya que el androide les comunicaría en el momento indicado que la verdadera versión de Costella estaba en Blair. A sus hijos los quiere pero no siente que pueda cuidarlos ni darles afecto, por lo que prefiere mantenerlos alejados de ella. De vez en cuando investiga sobre el paradero de sus hijos y se siente tranquila de que Izan haya encontrado una amiga como Franci que no le parece mala persona. 
+Lo conoció mediante Emi, cuando los dos fueron ingresados en la escuela. Se hizo su amigo con la intención de avanzarle a Zuri y dejarselo a Emi.  Le parece gracioso y le da pena que sea tan tonto, le gusta tenerlo cerca para sentirse más genial.
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⏏ MILOS REIZER
+#### ⏏ NOIR MEYER
 
-| amor <br> **➊➋➌➍**➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌➍➎➏➐**➑➒➓ | odio<br>**➊➋➌➍➎**➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Lo crió de la misma manera que Izan, con un androide y con ayuda de Awen. Costella se enteró muchos meses después sobre la muerte de su hijo Milos, pero no cree haber podido hacer nada al respecto, ya que en ese momento también había sido afectada cuando Eruo invadió Blair. 
+Fue criado junto a ella y la considera lo más cercano a una hermana. Está acostumbrado a que sea violenta, pero desde que ambos se alejaron de Jafet, Noir se distanció y se mostraba cada vez más molesta por la sensibilidad de Glaze o sus sentimientos. Cree que ser sensible es algo que está mal y que por eso no se lleva bien con Noir. Le tiene resentimiento por haberse alejado y por no interesarse en su vida. 
+### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
+
+#### ⏏ AWEN ARAMIS
+
+| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>**➊➋**➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+
+La conoció cuando fue exorcizado, es alguien que le dio muchas oportunidades, además de que a pesar de que es un gijinka de Jafet, le ofreció una nueva familia y tampoco buscaba aislarlo de todo el mundo. Además de eso, Awen siempre estaba dispuesta a ayudarl, por lo que le tiene aprecio. A pesar de eso, desconfía de ella ya que muchas veces dice bromas que parecen ir en serio.
+ 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
 #### ❤ DURIAN BLAIR
 
-| amor <br> **➊➋➌➍➎➏➐➑➒**➓ | odio<br>**➊➋➌➍➎➏**➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑➒➓**  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏➐➑➒➓** | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Es su amor platónico y su obsesión. Intentó por diferentes medios estar con él y también dejar de estar enamorada de él pero no lo consiguió. Le gusta todo de Durian, incluso las cosas malas de él. Actualmente no considera ninguna posibilidad entre los dos y espera poder enamorarse de alguien más que la haga olvidarse de Durian. 
+Le cae mal, considera que es una persona forra que uso a Jafet y a Costella, personas que eran preciadas para él. Le desagrada lo falso que es y cómo finge tener sentimientos, cuando cree que no siente nada por nadie, ni siquiera por su pareja. No cree que vaya a cambiar nunca y que al igual que Jafet, Durian considera de su propiedad a los gijinkas. Quiso matarlo varias veces, pero entiende que solo se joderia a sí mismo y prefiere esperar a que se muera o lo mate alguien más.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ⚑ HERZ STREIFF
+#### ⚑ LARK LAVERNE
 
-| amor <br> **➊➋➌➍**➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑**➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏**➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Cuando investigaba sobre su familia, en el momento que no sabía que su verdadera madre era Coral, fue a conocer personalmente a Herz. Con anterioridad había investigado sobre él y su mala fama, pero de todas formas había ido a verlo. Por un tiempo se quedó viviendo con él y buscaba tener algo con él ya que le atraía. Desde que lo conoció le atrajo y buscaba tener algo con él, pero por lo general no se daba porque estaba más enamorada de Durian. Al final decidió darle una oportunidad a la relación que tenía con Herz ya que los dos eran muy parecidos y se podrían entender. Actualmente cree que Herz sigue enamorado de Ume, además de que sabe que es muy débil con los albinos, una de las razones de porqué le caen mal los de cabello blanco aunque hay excepciones con algunos como Izan, Emi y Glaze. En cuanto a su opinión de Herz, le encanta la comida que hace, sobre todo porque cocina cosas dulces que son sus favoritos y le divierte mucho su personalidad enojona por lo que le gusta molestarlo aunque a veces también le da miedo. 
+No lo entiende y cree que es un gijinka jodido mentalmente, como todos. Cree que podria rehabilitarse en el psiquiatrico, pero al mismo tiempo lo ve como alguien peligroso por su obsesión con Costella. Le recuerda a cuando él estaba poseído y también iba a lastimarla, pero a un nivel superior. Cree que Costella es más inteligente que él y que Awen tampoco va a dejar que se salga con la suya. 
+### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
+
+#### ⚑ FRANCI DEMUTTI
+
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍**➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+
+La conoce cuando lo engaña para capturar a Liv, cree que no solo estaba dispuesta a joderlo, sino que planeaba hacerle cosas peores a Liv. Desconfía mucho de ella al comparar sus métodos con los de Awen. Está más aliviado de que Emi se haya hecho amiga de Liv, ya que cree que puede protegerla de Franci si se manda una cagada otra vez. 
+### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
+
+#### ⚑  IZAN REIZER
+
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍**➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎**➏➐➑➒➓  |
+
+Sabe que trabaja con Franci y que es igual de peligroso que ella. Cree que no siente empatía por nadie, ya que actuaba como si nada al igual que Franci, cuando lo atacaban a él y a Liv. No cree que sean buena gente o que les interese fingir eso como pasa con Awen, y no quiere tenerlo cerca ni tener problemas con él. 
+### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
+
+#### ⚑ REZNIK SAGASTE
+
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏**➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+
+Cree que es linda pero muy tonta, intentó avanzarle pero Audy lo rechazó y dejó de intentarlo con ella, pareciendo muy densa su personalidad. Actualmente conocio a su hija Naga e intenta hacerse amigo de Audy para poder ver a su hija. 
+### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
+
+#### ⚑ AUDY GARTER
+
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏**➐➑➒➓  |
+
+La conoció en la escuela y tuvo relaciones con ella, no sabe mucho de ella ya que solo la vio una vez, y Ava dejó la escuela después de eso. Le parecía linda y espera verla otra vez para ver como anda.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
 #### ⚑ BERNARD REITER
 
-| amor <br> **➊➋➌➍➎**➏➐➑➒➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑**➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Le tiene mucho aprecio y cariño al ver como se esforzaba por Emi, también le atraía mucho por lo que quería casarse con él y fantaseaba con que iba a ser una historia de amor en la que los dos cuidarían de Emi, pero terminó dudando cuando se dio cuenta que no era la única persona a la que amaba, además de que habia estado con Odel, por lo que terminó perdiendo toda esperanza de que tuvieran su historia romántica. Todavía le tiene mucho aprecio y sólo quiere que Bernard sea feliz. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ⚑ KRAUSS LAFKEN
-
-| amor <br> **➊➋➌➍➎➏➐➑➒**➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑**➒➓  |
-
-Costella lo ama mucho más de lo que cree pero no se da cuenta. Muchas veces intentó ayudarlo con la tristeza que Krauss siempre cargaba pero no podía ayudarlo porque ella está igual de perdida que Krauss y no sabe como encontrar la felicidad. Buscó darle consejos e incluso intentó emparejarlo con Ume, pero también solía contradecirse cuando evitaba que se hiciera pareja de Adahy quien consideraba que podría hacerlo feliz.  Su último intento para que Krauss pudiera resolver su problema fue el de darle genes serkei que lo dejaran pensar mejor en sus diferentes opciones, aunque no sabe si eso podría funcionar, pero es una posibilidad. Todavía sigue creyendo que a Krauss le gusta Ume, por lo que ya no lo ve como posible pareja, ya que es el motivo por el cuál se separó de él cuando salían y le duele tanto como con Durian. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ⚑ GLAZE FERREC
-
-| amor <br> **➊➋➌➍➎➏➐➑➒**➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍**➎➏➐➑➒➓  |
-
-Siente mucha angustia no poder corresponderle a Glaze a pesar de todas las cosas buenas que hizo por ella. Por un tiempo intentó forzarse a estar con Glaze para hacerlo feliz pero aún así no podía corresponder sus sentimientos, por lo que desistió de la idea e intenta ignorarlo lo más que pueda ya que considera la posibilidad de que pueda enamorarse de otra persona que no sea ella. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ⚑ EZRA ARAMIS
-
-| amor <br> **➊**➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍**➎➏➐➑➒➓  |
-
-Fue su primer crush aunque no es muy consciente de eso. Cuando llegó a Blair no entendía muy bien la dinámica de sociabilizar y era algo que le interesaba mucho. Como Ezra era muy sociable, para Costella era como una sensei para ella y la miraba con admiración hasta que cometió el error de asesinar a una persona en un intento de "defender" a Ezra. Como ambas chocaron por la acción de Costella, decidió alejarse de Ezra. Actualmente le desagrada la relación que Ezra tiene con Zuri y que le haya hecho eso a Ray. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ⚑ ALBA STREIFF
-
-| amor <br> **➊➋➌➍**➎➏➐➑➒➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏**➐➑➒➓  |
-
-Apenas la conoció ya le atraía Alba, pero se decepcionó cuando Alba no se tomó en serio el momento que estuvieron juntas. Al igual que con sus otras “relaciones”, había fantaseado con que iban a tener una relación de pareja duradera pero se sintió defraudada cuando se dió cuenta que no iba a funcionar. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ⚑ GEIN CADASSI
-
-| amor <br> **➊➋**➌➍➎➏➐➑➒➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋**➌➍➎➏➐➑➒➓  |
-
-Se enamoró muy rápido de Gein, pero también se desenamoró rápido. Actualmente aprueba su relación con Randal y cree que hacen una buena pareja aunque le da pena que Gein sea tan homo de closet y no se libere. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ⚑ AWEN ARAMIS
-
-| amor <br> **➊➋➌➍**➎➏➐➑➒➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎**➏➐➑➒➓  |
-
-Al comienzo le atraía demasiado pero bajó considerablemente cuando lo vió con Odel, además de que tuvieron un hijo aunque ese hijo sea Durian. Actualmente le tiene mucho aprecio por todas las veces que la salvó y ayudó, pero le cuesta confiar en ella porque es una buena mentirosa o eso cree Costella. En el fondo le tiene miedo ya que Awen podría encerrarla en el manicomio en cualquier momento por todas las cosas que hizo y no entiende porqué hasta ahora no la encerraron como a Lark, aunque sospecha que es por las preferencias de Awen y su paja, ya que no cree que Awen le tenga aprecio realmente.
+Lo conoce de la secta y posteriormente como al tutor de Emi, se da cuenta de que Bernard le tiene miedo y a sus poderes, además de que desaprueba que Glaze se haga amigo de Emi, por lo que no usa mucho sus poderes y trata de actuar como un chico normal cerca de él.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
 #### ⚑ DEAN RIVEN
 
-| amor <br> **➊➋➌➍➎**➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎**➏➐➑➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Actualmente considera a Dean como su amigo, aunque también tuvo un leve crush con él por un momento, sobre todo cuando le decía que Glaze no era una buena opción para ella, lo cual le hacía creer que estaba enamorado de ella y eso la conquistaba. Nunca imaginó una historia romántica con él pero le parece un chico lindo y talentoso y que él podría tener a la chica que quisiera, sobre todo porque cree que Dean tiene buenos valores, lo cual es algo muy raro de encontrar en alguien.
+Desde que lo conoció le cae mal, le parece un engreído y un virgo. No entiende porqué tiene poderes de gijinka, si no tiene relación con Jafet que es la bruja más poderosa. Le cae mal y le hubiera gustado que Armani se lo quedara, asi dejaba de estorbarle en sus intentos de estar con Costella. 
+### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
+
+#### ⚑ DEVI REIZER
+
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋**➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+
+Sabe que es la madre de Costella, y que Costella está enojada con ella. No entiende bien los detalles, pero cada vez que ve a Devi interactuar con Costella, se da cuenta de que parece que no le importa nada. Le recuerda a Durian y como lo trataba a él cuando era su gijinka, no cree que sienta aprecio por Costella. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
 #### ⚑ ERUO GAZINI
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-| amor <br> **➊➋➌➍➎➏➐➑➒➓** | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐➑➒➓**  |
-
-Sabe que es el alma duplicada de Durian y le hubiera gustado tener una historia de amor con él. Después de que volviera a ser un humano se acercó a él y busca pasar el mayor tiempo posible con él. 
+Sabe que es Durian y que era el demonio de Liv. No lo entiende, pero ve que aprecia mucho a Liv, incluso después de haber sido exorcizado. A pesar de lo que dicen, no le recuerda para nada a Durian y se cree mejor cuando esta cerca de el, ya que Eruo le parece infantil y tonto.
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ★ LIVIA ARZEN
+#### ⚑ EULER SEYMOUR
 
-| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋**➌➍➎➏➐➑➒➓ | odio<br>**➊➋**➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-No la conoce mucho, aunque ya sabe que Liv es su alma duplicada, pero no siente que tengan nada en común. 
+Lo conoció como exorcista,  le parece ñoño y le parece aburrido, pero nunca lo trato mal a pesar de ser un gijinka de la secta y lo ayudó siempre que Glaze tuvo que recurrir a él, como cuando con Costella querían ayudar a Durian. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ★ RAY GREYHOUND
+#### ★  EXIT BLAIR
 
-| amor <br> **➊➋➌➍**➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Le gustaba pasar el tiempo con Dark y Ray en los juegos de realidad virtual furras y se divertía mucho, más allá de eso no lo conoce demasiado pero le cae bien y le da risa que sea tan miedoso. 
+Sabe que es el hijo de Durian y algunas veces fue a verlo solo para asustarlo, le parece muy gracioso lo diferente a Durian que es y no le cae mal por eso mismo, además de que tuvo un pasado turbio pero quiere salir adelante. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ★ EMI SALLOW
+#### ★  HERZ STREIFF
 
-| amor <br> **➊➋➌➍➎➏➐➑➒**➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-Emi fue su primer amiga con quien se pudo llevar bien cuando estaba enamorada de Bernard. Costella la considera casi parte de su familia desde que fantaseó con que Bernard y ella, la cuidarían como una hija, pero se dió cuenta de que eso no iba a poder ser posible. A pesar de eso la considera como su amiga y le cae bien su personalidad positiva y enérgica y cómo cambió para bien, y dejó las sectas y todo lo malo atrás para ser una mejor persona. Cree que fue Bernard el que la crió bien y que le inculcó todos esos valores y también por eso le cae bien Bernard. Nunca investigó mucho sobre lo que hacía Emi ni todas las cosas malas que hizo por ejemplo con Franci, Ray o Krauss y solo cree que Ray le tiene miedo porque le agobia su personalidad enérgica, pero no tiene idea de que Emi también era una acosadora. Si supiera que acosaba a Krauss la terminaría odiando. 
+Lo conoció porque era el abuelo de Costella, le da mucho asco su fetiche con los albinos y que ni siquiera lo disimule, muchas veces quiso avanzarle a Glaze y él se escapó con sus poderes. Lo ve como competencia porque es alguien que Costella aprecia y no entiende qué es lo que ella le ve. 
+
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ✸ LARK LAVERNE
+#### ★ KRAUSS LAFKEN
 
-| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍**➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏**➐➑➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏**➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
 
-No entiende porque Lark se obsesionó con ella y le parece muy extraño que no haya buscado otra persona más. También le parece extraño que sea una de las pocas personas que no esté enamorado de Ume o que no esté interesado en ella. No entiende nada de lo que Lark hace ni sus motivaciones, pero comienza a creer que solo es un sádico y que tuvo la mala suerte de ser el primer objetivo de él y que no va a descansar hasta que ella se muera o hasta tenerla encerrada por siempre, torturandola. A pesar de no entenderlo le tiene aprecio porque todavía no está segura de los sentimientos de Lark y todavía ve una pequeña posibilidad de que esté enamorado de ella. 
+Lo conoció como a un gijinka traicionero de Jafet, aunque entiende que Krauss fue de los primeros en zafar del hechizo de Jafet al ser poliamoroso. Lo ve como competencia porque es alguien que le gusto a Costella, tampoco entiende que le vio, ya que le parece aburrido e insulso. Le molesta que sea dejado y se deje maltratar.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ✸ BIANCA STEINHAUS
+#### ✸ LEYVA REIZER
 
-| amor <br> **➊➋➌➍➎➏**➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐**➑➒➓  |
+| amor <br> **➊**➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋**➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏**➐➑➒➓  |
 
-Le cae mal que sea una polígama como Tanis y no cree que lo justifique ser una serkei. Pero lo que más mal le cae es que le haya mentido por tanto tiempo a Ciever y que sea tan pajera por Leyva. Se enteró de todo después de haber estado con ella en el crucero y está traumada de no haber sido cuidadosa ni haber investigado sobre Bianca antes de haber tenido algo. No se siente orgullosa de haber tenido dos hijas con Bianca y prefiere no saber nada al respecto. 
+Le molesta que trate con prepotencia a Costella, o que cuando Costella corria mucho peligro, no se esforzara en ayudarla. Aun así, Leyva siempre estuvo aunque actuara de esa forma, así que le tiene cierto aprecio. Lo castigo varias veces por usar sus poderes en la prision y le parecia una pesada.
+ 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ✸ VELAFI REIZER
+#### ✸ NEPAL DIONAE
 
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏➐**➑➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍**➎➏➐➑➒➓ | atraccion <br> **➊➋➌➍➎➏**➐➑➒➓  |
 
-Costella no confía nada en Velafi por la manera tan fácil en que pudo engañarla. De hecho le tiene miedo mucho más de lo que le teme a Awen o Lark. De hecho cree que Velafi si quisiera podría joderse a todos al mismo tiempo y que nadie se daría cuenta de que ella es la que está detrás de todo. A veces siente que solo es paranoia pero prefiere no pensar de esa manera para poder tomar todas las decisiones correctas y espera al menos que no lastime a sus seres queridos. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### ✸ UME SHIRAIWA
-
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏➐➑➒➓** | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
-
-La odia porque se relacionó con todas las personas que le gustaron, porque es el amor imposible de ellos y porque no le parece una buena persona a pesar de que todos digan lo contrario. Para Costella, Ume es una mentirosa, manipuladora y polígama que sólo busca satisfacción sexual y que en realidad no tiene tanto amor como todos creen. No la asesina solo porque cree que terminaría convirtiéndose en una mártir. 
+Le tiene envidia porque siempre fue la favorita de Jafet, le recuerda a Durian por su personalidad controladora y posesiva,no cree que ame realmente a Jafet, pero de todos modos cree que se merecen porque las dos son forras. No quiere acercarse y prefiere que mantenga a Jafet a raya de buscar a los demás gijinkas 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
 #### ✸ ODEL GRAF
 
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏➐➑➒**➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>**➊**➋➌➍➎➏➐➑➒➓ | atraccion <br> **➊➋➌**➍➎➏➐➑➒➓  |
 
-Lo odió desde que lo vió con Awen, aunque ya le caía mal mucho antes cuando también tuvo algo con Bernard. Le da más asco que Armani, sobre todo porque acosa a todo el mundo y los que a ella le gustan como Krauss o Durian. A pesar de su odio por él, nunca buscó matarlo y tampoco le interesa. 
+Antes Odel lo maltrataba y era bastante prepotente, por lo que le caía mal. Aun así lo spameaba y le pedía ayuda, ya que sabía que Euler lo convencería. Muchas veces fue a pedirle ayuda, y hubo una vez en que Odel escuchó sus dramas con Costella. Tuvieron relaciones pero Costella se interpuso, así que le cae bien Odel porque lo ayudó un poco a darle celos. 
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
-#### ✸ ARMANI
+#### ✸ UME SHIRAIWA
 
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌➍➎➏➐**➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
+| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>**➊➋➌**➍➎➏➐➑➒➓** | atraccion <br> **➊**➋➌➍➎➏➐➑➒➓  |
 
-Desde que supo que acosaba a Dean y que andaba en una especie de relación con Glaze, le cayó mal. Le da mucho asco que acose a Dean y le recuerda a Odel a quien también odia mucho. Actualmente no está enterada de que Armani se murió. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### � REMI GALAHAD
-
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
-
-No lo conoce demasiado y sólo lo recuerda como un chico asustadizo y cobarde. Le da un poco de risa su personalidad miedosa y no le importa mucho su pasado, ni que sea hijo de Ume y Krauss.
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### � MAITE DEMUTTI
-
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
-
-No investigó mucho sobre Maite a pesar de que se la madre adoptiva de Durian ya que no cree que tenga un vínculo fuerte con él y lo poco que sabe es que tuvo una relación con Lezne, pero que fue abandonada y reemplazada por Devi. Pero no le da pena ya que pudo conocer a Coral que le parece una mejor persona que Lezne. No tienen ninguna opinión en particular sobre Maite más allá de que le parece una persona que se esfuerza por hacer las cosas bien. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### � FRANCI DEMUTTI
-
-| amor <br> **➊➋➌**➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
-
-La conoce como la amiga de Izan, sabe que se llevan bien y aunque sea demasiado paranoica le cae bien. No investigó sobre ella aunque sea amiga de Izan ya que prefiere no entrometerse demasiado en la vida de su hijo a quien no crió en persona. 
-### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
-
-#### � RANDAL DEMUTTI
-
-| amor <br> ➊➋➌➍➎➏➐➑➒➓ | odio<br>➊➋➌➍➎➏➐➑➒➓ | atraccion <br> ➊➋➌➍➎➏➐➑➒➓  |
-
-Lo conoce como el novio de Gein, no sabe mucho más que eso de él y tampoco lo investigó. 
+La ataco una vez para ver la reacción de Durian, le cae mal porque cree que es muy tonto todo lo que hizo por Durian, para que Durian siguiera engañandola con todo el mundo. Le parece un caso perdido y que se merece que se la jodan. De vez en cuando la visitaba porque le parecía gracioso que fuera la novia de Krauss al no tener sus recuerdos, pero después dejó de interesarle cuando recordó a Durian otra vez.  
 ### ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
